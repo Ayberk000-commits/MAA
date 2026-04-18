@@ -1,2 +1,0 @@
-# MAA
-Kendi portfolyom
